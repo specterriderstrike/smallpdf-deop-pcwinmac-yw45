@@ -1,4 +1,4 @@
-# 
+# Native Smallpdf Desktop extensions for Mac OS | Updated Smallpdf Desktop extensions for PC Windows. Featuring integration with accounting and self-employed support — optimized for maximum performance on every platform.
 
 
 
